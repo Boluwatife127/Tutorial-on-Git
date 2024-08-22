@@ -6,3 +6,4 @@ the world is nothing but black and white
 
 what is reality but a mixture of consiousness
 is this true
+is it
